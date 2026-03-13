@@ -9,5 +9,5 @@ Atualmente moro no Rio grande do sul.
 
 ## Hobies
 
-- Entusiasta de Dungeon e dragons e Tolkien
+- Entusiasta de Dungeon & dragons e Tolkien
 - Ama jogar jogos Online ou Single
